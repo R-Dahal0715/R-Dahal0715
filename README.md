@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @R-Dahal0715
 - 👀 I’m interested in biology and data esp. in ecology and ecosystem dynamics. 
-- 🌱 I’m currently learning statistics and programming
+- 🌱 I’m currently doing my masters in urban ecology and also learning statistics and programming.
 - 💞️ I’m looking to collaborate on biodiversity conservation projects
 - 📫 How to reach me ranjandahal75@gmail.com
 - 😄 Pronouns: He/Him
